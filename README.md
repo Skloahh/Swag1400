@@ -1,6 +1,6 @@
 *yo*
 
-**pronouns: just he because i'll never be him**
+**pronouns: lammer & skidder**
 
 ---
 ![](https://thumbs.gfycat.com/LeafyHappyEasternnewt-size_restricted.gif) 
